@@ -30,7 +30,8 @@
     𐔌 ⊹ ˙ 　　　　　︵︵  int , w₂₁ !!  ✘  ₈₆/₈₇% 
 
 <p align="center"> 
-    ୧・┈┈┈┈・୨ ✦ ୧・┈┈┈┈・୨ ✦ ୧・┈┈┈┈・୨
+<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/667624ed-6b6c-4ebc-9031-9b7d6f93074d" />
+
 
 
 
